@@ -1,1 +1,1 @@
-![MacBook Pro 16_ - 1](https://github.com/kenanmusali/Loading-Animation-For-Screen/assets/149934213/cc6787dd-a55f-422e-a000-243b0e71e9bb)
+![Screenshot 2024-02-12 121040](https://github.com/kenanmusali/Loading-Animation-For-Screen/assets/149934213/fbb1efd1-fb98-4c7a-88f8-9f73e962c673)
